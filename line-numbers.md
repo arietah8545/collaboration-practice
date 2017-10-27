@@ -6,9 +6,9 @@
 #### 6
 #### 7 Arieta wuz here
 #### 8
-#### 9 GitHub is really  awesome 
+#### 9 GitHub is really  awesome .
 #### 10
-#### 11
+#### 11 Sebastian is not here
 #### 12
 #### 13
 #### 14
