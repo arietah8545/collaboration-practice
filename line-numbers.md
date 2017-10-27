@@ -2,9 +2,9 @@
 #### 2
 #### 3 Mr. Shmueller wuz here!
 #### 4
-#### 5 Donia wuz here
+#### 5
 #### 6
-#### 7
+#### 7 Arieta wuz here
 #### 8
 #### 9
 #### 10
